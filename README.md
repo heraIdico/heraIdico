@@ -2,7 +2,8 @@
 
 
 
-![amm](https://github.com/user-attachments/assets/e0d979b6-1e56-41a3-a721-6c57f6bcc5ba)
+
+![stay](https://github.com/user-attachments/assets/d0fa846b-cd0c-4ec5-8eba-32397107fec3)
 
 
 
@@ -18,6 +19,7 @@ _-_  _Hotel Bella Muerte_
 
 
 
+![um](https://github.com/user-attachments/assets/a9a02ed3-8e50-4745-ac30-0ec80f76f024)
 
 
 
@@ -41,5 +43,6 @@ _-_  _Hotel Bella Muerte_
 
 
 
-![um](https://github.com/user-attachments/assets/de128d9f-f0be-472e-94d8-a930292968ed)
+
+
 

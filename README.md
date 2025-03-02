@@ -3,10 +3,6 @@
 
 
 
-![stay](https://github.com/user-attachments/assets/d0fa846b-cd0c-4ec5-8eba-32397107fec3)
-
-
-
 ![aa](https://github.com/user-attachments/assets/c6563b01-1850-4444-9475-eae67cee5b2e)
 
 
